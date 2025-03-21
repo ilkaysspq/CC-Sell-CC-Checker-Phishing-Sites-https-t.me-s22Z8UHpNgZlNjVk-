@@ -1,1 +1,1 @@
-# CC-Sell-CC-Checker-Phishing-Sites-https-t.me-s22Z8UHpNgZlNjVk-
+# CC-Sell-CC-Checker-Phishing-Sites
